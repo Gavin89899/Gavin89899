@@ -1,4 +1,4 @@
-### Ask me about any sports team for an "unbiased" opinion
+### Ask me about any sports team for an "unbiased" opinion😁
 
 <!--
 **Gavin89899/Gavin89899** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
